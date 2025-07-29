@@ -1,3 +1,3 @@
-Công cụ do Nguyễn Văn Thành Dex 0837000077
+Công cụ do DTam
 Căn cứ vào nguồn dữ liệu được cập nhật chính thống.
 Hỗ trợ miễn phí cho cộng đồng
